@@ -1,2 +1,2 @@
 # -1repos
-Szkola
+🏫 
